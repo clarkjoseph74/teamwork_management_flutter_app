@@ -2,9 +2,3 @@
 
 
 
-
-##clark joseph
-
-
-
-
